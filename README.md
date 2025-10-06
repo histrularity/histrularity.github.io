@@ -15,6 +15,8 @@ responding within milliseconds, making profits over market fluctuations.
 
 📅 Established on October 5, 2025
 
+[X](https://x.com/histrularity/status/1974867262650929332) [Github Issue](https://github.com/histrularity/histrularity-studio/issues/1)
+
 <br>
 
 --------------
@@ -37,3 +39,5 @@ responding within milliseconds, making profits over market fluctuations.
 运筹于毫秒之间，决胜于市场波动之上。
 	
 📅 成立于 2025年10月5日
+
+[小红书](http://xhslink.com/o/2eaUzjm7g6A)    [BiliBili](https://www.bilibili.com/opus/1120230300965666840?spm_id_from=333.1387.0.0) [Github Issue](https://github.com/histrularity/histrularity-studio/issues/1)
